@@ -1,3 +1,3 @@
 # This is my portfolio.
-https://www.maitreyijoshi.ml/
+https://maitreyi88.github.io/Maitreyi88/
  
